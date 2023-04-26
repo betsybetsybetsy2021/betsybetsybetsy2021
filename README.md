@@ -10,7 +10,8 @@
 - thanks a psychiatrist for the relief but the near existential crisis of the though of losing access give me real issue. My first few years were akin to the
 -  intellectual drought of being taken captive by the Taliban.)
 - 💞️ I’m looking to collaborate on .... well.  I am career transitioning.  I DO have lot of experience with government contracts, and technical writing.  I can beta
-- test anything, but I will likely be learning more from you all at this point than the other way around.
+- test anything, but I will likely be learning more from you all at this point than the other way around. But if you have ever seen the meme of the cow with no 
+legs walking on a udder, well consider this very hard before you decide you don't need me.
 - 📫 How to reach me: betsyinlosangeles #4322
 
 <!---
