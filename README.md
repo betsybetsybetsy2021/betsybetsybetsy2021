@@ -1,3 +1,5 @@
+I had to sell my coding laptop for shelter which is why there are not updates to my repositories.  I have been unable to find new work in Los Angeles, most likely because I am not coded properly as a student.  I received one solar farm job offer that requires a license I cannot pay for, and likely the car that I didn't bring with me.  I prefer the Frosties, but I dont' have the backing.
+
 - 👋 Hi, I’m @betsybetsybetsy2021
 - 👀 I’m interested in learning AND snacks!  No seriously, I have offered to pay developers and hackers in snacks for their good works in protecting what matters.  
 - I love food. I have worked with a lot of Vietnamese-American tech developers before and looooooveee red bean anything!  
