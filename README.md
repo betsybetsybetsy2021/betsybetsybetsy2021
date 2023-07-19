@@ -5,6 +5,7 @@ You can start playing. - Vasko Popa
 I won't go to any schools with dogs as their mascots. They are asking me to support others paths, not creating paths for me. I need a human path that leads home to my family.  I'm not a book and I don't serve books, although we have had many synergies.
 
 I had to sell my coding laptop for shelter which is why there are not updates to my repositories.  I have been unable to find new work in Los Angeles, most likely because I am not coded properly as a student.  I received one solar farm job offer that requires a license I cannot pay for, and likely the car that I didn't bring with me.  I prefer the Frosties, but I dont' have the backing.  I left my car on the border of Canada to try to get to a US consulate and get reconnected with my lost family members.  I had hoped that a different "country" might not block the calls.  Bell didn't allow me to call my real parents and neither did the US consulate.  Elizabeth isn't a purposefully birdseeded name.  Elizabeth was the name that was supposed to have the tech/military/business seed and Betsy is my nickname not a separate person. 
+Their pretending that I am stupid is not for my benefit and not for washing purposes. It is abusive coercive control.
 
 - 👋 Hi, I’m @betsybetsybetsy2021
 - 👀 I’m interested in learning AND snacks!  No seriously, I have offered to pay developers and hackers in snacks for their good works in protecting what matters.  
