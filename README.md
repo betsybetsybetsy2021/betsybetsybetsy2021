@@ -2,6 +2,8 @@ If you’re not smashed to bits,
 If you’re still in one piece and get up in one piece,
 You can start playing. - Vasko Popa
 
+I won't go to any schools with dogs as their mascots.
+
 I had to sell my coding laptop for shelter which is why there are not updates to my repositories.  I have been unable to find new work in Los Angeles, most likely because I am not coded properly as a student.  I received one solar farm job offer that requires a license I cannot pay for, and likely the car that I didn't bring with me.  I prefer the Frosties, but I dont' have the backing.
 
 - 👋 Hi, I’m @betsybetsybetsy2021
