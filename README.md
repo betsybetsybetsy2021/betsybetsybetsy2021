@@ -1,4 +1,4 @@
-Annoyed... someone took my Hacker's Quarterly tote bag.  The son wants this to be a story about translation and to suppress the fact that I am an engineer. I have engineering contacts now, so I don't have to be things I am not right?  Well I AM an engineering project manager, language are only something I do to talk to the people I love, not for work.
+Annoyed... someone took my Hacker's Quarterly tote bag.
 
 If you’re not smashed to bits,
 If you’re still in one piece and get up in one piece,
