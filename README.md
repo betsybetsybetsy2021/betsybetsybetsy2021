@@ -1,3 +1,5 @@
+Annoyed... someone took my Hacker's Quarterly tote bag.  The son wants this to be a story about translation and to suppress the fact that I am an engineer. I have engineering contacts now, so I don't have to be things I am not right?
+
 If you’re not smashed to bits,
 If you’re still in one piece and get up in one piece,
 You can start playing. - Vasko Popa
