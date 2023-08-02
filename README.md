@@ -1,5 +1,8 @@
 Annoyed... someone took my Hacker's Quarterly tote bag.
 
+STAT 4705 - Probability and Statistics for Engineers (3 credits) 
+Basic concepts of probability and statistics with emphasis on engineering applications. 4705: Probability, random variables, sampling distributions, estimation, hypothesis testing, simple linear regression correlation, one-way analysis of variance. 4706: Multiple regression, analysis of variance, factorial and fractional experiments. Only one of the courses 3704, 4604, 4705, 4714, and 4724 may be taken for credit.
+
 If you’re not smashed to bits,
 If you’re still in one piece and get up in one piece,
 You can start playing. - Vasko Popa
