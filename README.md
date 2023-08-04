@@ -1,3 +1,5 @@
+There are things that are surviveable, that death is still preferable to. - Me 8/4/2023
+
 Annoyed... someone took my Hacker's Quarterly tote bag.
 
 STAT 4705 - Probability and Statistics for Engineers (3 credits) 
