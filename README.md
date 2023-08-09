@@ -1,3 +1,6 @@
+Still alive, but only on charity.  One day you will all realize you are either stealing from me, or retaliating against me for being 
+protected by people you don't like.  Remember, I am a patchwork of all the people that have helped me, and some of them I dont' even really like, you aren't going to like all the patterns, but it is the person in the coat that matters.  Suspend judgement and let her speak.  I do NOT yield my time!
+
 There are things that are surviveable, that death is still preferable to. - Me 8/4/2023
 
 Annoyed... someone took my Hacker's Quarterly tote bag.
