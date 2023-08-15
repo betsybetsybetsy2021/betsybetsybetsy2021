@@ -1,3 +1,11 @@
+‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
+
+دختری تخم ترتیزک است
+کناه بیبی به کردن کنیز است
+https://medium.org/betsybetsybetsy2021‎
+
+
+
 Now someone stole my watch.  It doesn't work and you can't pawn it.  It was only important to me because it was given to me by my grandmother for my high school graduation. It has my initials on the back as well as the date of my high school graduation.  Stop punishing me for what other people do.  I have taken nothing from anyone, beyond a cucumber when I was starving.
 
 Still alive, but only on charity.  One day you will all realize you are either stealing from me, or retaliating against me for being 
