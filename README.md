@@ -8,6 +8,9 @@ https://medium.org/betsybetsybetsy2021‎
 
 Now someone stole my watch.  It doesn't work and you can't pawn it.  It was only important to me because it was given to me by my grandmother for my high school graduation. It has my initials on the back as well as the date of my high school graduation.  Stop punishing me for what other people do.  I have taken nothing from anyone, beyond a cucumber when I was starving.
 
+08/18
+My lip gloss emptied out. They are trying to reduce me to only jail supplies so I look like I am in jail or think I am man using makeup. 
+
 Still alive, but only on charity.  One day you will all realize you are either stealing from me, or retaliating against me for being 
 protected by people you don't like.  Remember, I am a patchwork of all the people that have helped me, and some of them I dont' even really like, you aren't going to like all the patterns, but it is the person in the coat that matters.  Suspend judgement and let her speak.  I do NOT yield my time!
 
