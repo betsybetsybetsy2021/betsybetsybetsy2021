@@ -1,5 +1,7 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
+someone took the photos of my FAMILY
+
 دختری تخم ترتیزک است
 کناه بیبی به کردن کنیز است
 https://medium.org/betsybetsybetsy2021‎
