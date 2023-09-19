@@ -5,8 +5,6 @@ Photos were returned. Watch was not returned.
 دختری تخم ترتیزک است
 کناه بیبی به کردن کنیز است
 
-I cannot learn Farsi other than vocabulary because I am not near ANY Farsi speakers and have not been since 2012.
-
 https://medium.org/betsybetsybetsy2021‎
 
 
