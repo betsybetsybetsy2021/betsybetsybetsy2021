@@ -1,6 +1,6 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
-someone took the photos of my FAMILY
+Photos were returned. Watch was not returned. 
 
 دختری تخم ترتیزک است
 کناه بیبی به کردن کنیز است
