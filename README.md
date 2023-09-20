@@ -1,5 +1,11 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
+I don't drink alcohol you morons.  i did have a cider because I planned to throw a rock so I would have a bed to sleep in.  I had one cider, because I am allergic to hops and I wanted to have a nice relaxing evening on the jail cot instead of freezing to death in the frozen north.  you would too.  Freeze to death outside, or guy who will onl let me stay if i am intimate with him, or throw a rock at a car for a jail bed for the night... those were my three options.  there were no homeless beds available for me.  i asked.  i dont have time to clean ears, i was supposed to be screening, and yes, you block calls to my family and take all my money, pretending i am a drug addict, drug dealer, etc. you are not helping at all. i should be screaming AT YOU.  i dont deserve your hell, for what reason would i? you want me to tell you why i feel guilty .. i do NOT.  i think you are evil, for pretending I am still first class, when you know I am not.  because there are religious people who WILL say, an athiest doesnt have religion so they can't be well, and those people including oprah deserve no role in my life.
+because i know who i am, i know what i am about, and i sleep perfectly at night.  you and your invented problems can go to hell. 
+
+ 
+
+
 Photos were returned. Watch was not returned. 
 
 دختری تخم ترتیزک است
