@@ -1,6 +1,6 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
-I can't be it again because I was just it. There is no time to clean eyes and ears, you just blocked my screen telling me how you knew what you were doing. 
+I can't be it again because I was just it. I have been it since 2018. There is no time to clean eyes and ears, you just blocked my screen telling me how you knew what you were doing. 
 I know who i am, i know what i am about, and i sleep perfectly at night.  You and your invented problems can go to hell. You give me zero love and belonging anywhere and I have no capability to care about anyone elses story anymore because you haven't given me my FAMILY back, not even a phone call. 
 
  
