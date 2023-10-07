@@ -1,6 +1,6 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
-Stolen from me overnight... my broken black phone, a package of Chinese tea (stupid down local law enforcement probably still believing they are going to find drugs among my math books), my nail clippers, and a bic pen... no joke.  
+Stolen from me overnight... my broken black phone, a package of Chinese tea and a bic pen... no joke.  
 
 Had the woman in Trader Joe's say "It is still money" ummm... no I was never money. I have never owned more than a car, I invested $400 in stocks while I WAS HOMELESS and I have ONE NFT. I rowed crew at a PUBLIC High School and we only had a boat because we went door to door begging for donations. I have less than almost EVERYONE. I don't receive a check or a stipend.  I don't receive food benefits. 
 
