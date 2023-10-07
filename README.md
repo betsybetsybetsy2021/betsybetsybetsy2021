@@ -1,5 +1,9 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
+Stolen from me overnight... my broken black phone, a package of Chinese tea (stupid down local law enforcement probably still believing they are going to find drugs among my math books), my nail clippers, and a bic pen... no joke.  
+
+Had the woman in Trader Joe's say "It is still money" ummm... no I was never money. I have never owned more than a car, I invested $400 in stocks while I WAS HOMELESS and I have ONE NFT. I rowed crew at a PUBLIC High School and we only had a boat because we went door to door begging for donations. I have less than almost EVERYONE. I don't receive a check or a stipend.  I don't receive food benefits. 
+
 Some WONDERFUL people, the Farmer in the Dell, the bee, space, documentaries, Ukraine, Anarchy, Water, Arctic Tern, Blink, Minty, etc... I am freaking honored.  If I ever meet any of you, I will be googly eyed  Do they know where I am? I am not so sure. We didn't have any plans... I was just told to go start a new life somewhere... you guys wanted me to succeed as much as real parents and I love you for it.  i keep workin' it! I really need someone to kind of teach me how to do my job though too.  That is the person I have been missing. I have big knowledge and never upskilled where it counted so that I could be planning rather than subject to plans. 
 
 I fear there is no time to clean eyes and ears, but someone blocked my screen telling me how you knew what you were doing.
