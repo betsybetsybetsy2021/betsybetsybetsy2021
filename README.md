@@ -1,5 +1,7 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
+My glasses broken because someone else wanted new glasses. I won't get new glasses, but they WILL.  Some people will treat other people worse than dogs. I already lived through hell and was supposed to land in California for Kintsugi not to be buried under "nots" that are going to get me abused, you keep your problems, I have enough of my own.
+
 Stolen from me overnight... my broken black phone, a package of Chinese tea and a bic pen... no joke.  
 
 Had the woman in Trader Joe's say "It is still money" ummm... no I was never money. I have never owned more than a car, I invested $400 in stocks while I WAS HOMELESS and I have ONE NFT. I rowed crew at a PUBLIC High School and we only had a boat because we went door to door begging for donations. I have less than almost EVERYONE. I don't receive a check or a stipend.  I don't receive food benefits. 
