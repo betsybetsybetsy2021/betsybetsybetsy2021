@@ -1,4 +1,5 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
+
 I AM Q
 
 "She don't want to be anyone else, she's a woman in total control of herself. It's such a wonder to be under her spell, a woman in total control of herself. Little miss kitty queen, she's got tricks up her sleeve, but I got a few of my own.  Am I bad to the bone? if I get what I want, mama said it aint' no crime." - Devon Cole's "W.I.T.C.H"
