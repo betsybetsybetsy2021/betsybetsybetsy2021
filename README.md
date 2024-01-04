@@ -1,4 +1,8 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
+DTX - Technical officers doing HUMNINT AND DXT - technology for HUMINT
+
+I AM Q
+
 "She don't want to be anyone else, she's a woman in total control of herself. It's such a wonder to be under her spell, a woman in total control of herself. Little miss kitty queen, she's got tricks up her sleeve, but I got a few of my own.  Am I bad to the bone? if I get what I want, mama said it aint' no crime." - Devon Cole's "W.I.T.C.H"
 
 My glasses broken because someone else wanted new glasses. I won't get new glasses, but they WILL.  Some people will treat other people worse than dogs. Romania State of UNDRESS with Hayley - human traffickers in Romania "these girls can be kept like homeless dogs".  I already lived through hell and was supposed to land in California for Kintsugi not to be buried under "nots" that are going to get me abused, you keep your problems, I have enough of my own. I am not here to take the beatings for other people.
