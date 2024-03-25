@@ -1,6 +1,8 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
-I AM Q
+March 2024 - underclass students helped me get new glasses but people where I live them stole them from me.  No idea whether they tried to spin it as a theft but they broke my original glasses and I don't have health benefits so I can't get a new pair. 
+They broke tge first pair, then when friends got me a new pair they stole them so now I can't see.  I am black 5 from NYC.  You keep trying to kill me on the blue line, but I am not even on a blue or silver line. They pretend I cannot, so they can control me.  i DID use survival Spanish in Quebec because I met Guatemalans there instead of French Canadians?!?!
+
 
 "She don't want to be anyone else, she's a woman in total control of herself. It's such a wonder to be under her spell, a woman in total control of herself. Little miss kitty queen, she's got tricks up her sleeve, but I got a few of my own.  Am I bad to the bone? if I get what I want, mama said it aint' no crime." - Devon Cole's "W.I.T.C.H"
 
