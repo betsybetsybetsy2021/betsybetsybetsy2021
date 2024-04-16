@@ -1,5 +1,7 @@
 ‏b🔳🃏🖤🌜🌌🐝😭👨‍👩‍👦e
 
+April 2024 - TAP card stolen.  April 16 2024 Phone hacked but I am not eligible for free phones. I am not doing another first with the ones that didn't want me. I don't think I am in the right arches.  I worked for McCabe.
+
 March 2024 - underclass students helped me get new glasses but people where I live them stole them from me.  No idea whether they tried to spin it as a theft but they broke my original glasses and I don't have health benefits so I can't get a new pair. 
 They broke tge first pair, then when friends got me a new pair they stole them so now I can't see.  I am black 5 from NYC.  You keep trying to kill me on the blue line, but I am not even on a blue or silver line. They pretend I cannot, so they can control me.  i DID use survival Spanish in Quebec because I met Guatemalans there instead of French Canadians?!?!
 
